@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Werner aka @werq2k
-- 👀 I’m interested in bouldering, hiking and self growth
+- 👀 I’m interested in bouldering, swimming and self growth
 - 🌱 I’m currently studying computerscience
 - 💞️ I’m looking for help and guidance in my journey
 - 📫 How to reach me werner.jarvinen@edu.turkuamk.fi
