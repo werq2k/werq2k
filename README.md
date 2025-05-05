@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Werner aka @werq2k
 - 👀 I’m interested in bouldering, swimming and self growth
-- 🌱 I’m currently studying computerscience
+- 🌱 I’m currently studying ICT
 - 💞️ I’m looking for help and guidance in my journey
 - 📫 How to reach me werner.jarvinen@edu.turkuamk.fi
 - 😄 Pronouns: He/Him
