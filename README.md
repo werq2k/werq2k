@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Werner aka @werq2k
+- 👋 Hi, I’m Werner
 - 👀 I’m interested in bouldering, swimming and self growth
 - 🌱 I’m currently studying ICT
 - 💞️ I’m looking for help and guidance in my journey
